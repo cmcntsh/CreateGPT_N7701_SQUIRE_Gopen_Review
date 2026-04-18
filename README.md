@@ -1,0 +1,1 @@
+# CreateGPT_N7701_SQUIRE_Gopen_Review
